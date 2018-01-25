@@ -51,3 +51,4 @@ BBer - 鑰匙串，典故出自於BB扣都會BB，名詞後面都要加er，和C
 <br>
 狌狌 - Faceler 的同義詞。
 <br>
+Make ... great again - 炒股票。典故出自於川普。
