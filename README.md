@@ -1,5 +1,6 @@
 # 光穎語言常用用語列表
 あgigi x3 - 表示嘲笑之意。翻譯成白話文為 "我好賤，你被我害慘了，笑死你。"被嘲笑的人要回應 "Mugigi x3" 例如: A: あgigi x3。B: Mugigi x3。A: GayWorldGigi x3。B: 誰的Gigi x3。A: 灑波羅的
+<br>
 Double curry doo - 表示很吵鬧的噪音，也可以表示很瘋狂。
 10001000 dadala - 原意為新年快樂，常接於 Double curry doo 之後，加強效果。
 AddddE - 還真的耶!
