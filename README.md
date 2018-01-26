@@ -13,6 +13,18 @@ Balelele - 死了
 <br>
 Bwylwylwylwy - 復活了
 <br>
+BwhyY'ally'ally'all - ?
+<br>
+吉他 - !
+<br>
+凜收2不2牙 - 你說對不對呀!? 後面可接 "2牙" 或 "部的2牙"
+<br>
+71 / 乖 - 奇怪的、怪異的。
+<br>
+71時間 / Gwhysgient - 奇怪的事件。
+<br>
+170 - Balelele 的同義詞。
+<br>
 Batchesler 或 BatchSL - 北七死了
 <br>
 Didwansler 或 DidwanSL - 低端死了
