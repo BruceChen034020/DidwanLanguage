@@ -29,6 +29,10 @@ Bongagelile - 爆炸(給你)
 <br>
 170 - Balelele 的同義詞。
 <br>
+口需 - 睡覺。例: 的口需的口需。
+<br>
+<br>
+大峽谷，需要填補。- 來打麻將。
 Batchesler 或 BatchSL - 北七死了
 <br>
 Didwansler 或 DidwanSL - 低端死了
@@ -76,7 +80,4 @@ Make ... great again - 炒股票。典故出自於川普。
 Anti-Delta / Nabla / 梯度 - 去死。典故出自於窗戶。
 <br>
 93 / 95 / 188 / 1660980 - 豬八戒、廢物。典故出自於翰林出版的國文課本第二冊。
-<br>
-大峽谷，需要填補。- 來打麻將。
-<br>
-口需 - 睡覺。例: 的口需的口需。
+
