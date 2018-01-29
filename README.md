@@ -31,7 +31,6 @@ Bongagelile - 爆炸(給你)
 <br>
 口需 - 睡覺。例: 的口需的口需。
 <br>
-<br>
 大峽谷，需要填補。- 來打麻將。
 Batchesler 或 BatchSL - 北七死了
 <br>
@@ -63,7 +62,7 @@ LED - 衍生為 "我們來吃零食"
 <br>
 Alveoli - 廢爆了。肺泡諧音。
 <br>
-X好啊，X棒啊，X呱呱叫！X別別跳！
+X好啊，X棒啊，X呱呱叫！X別別跳！ - 字面解
 <br>
 咯咯咯 尖尖尖 - Agigi 的同義詞
 <br>
